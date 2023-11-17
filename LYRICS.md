@@ -1,6 +1,3 @@
-L’École du micro d’argent
-IAM
-
                                                         choeur (moi):
 L'École du micro d'argent
 L'École du micro d'argent
@@ -34,6 +31,30 @@ seul le sang me procure du plaisir
 Mes griffes gravent les couleurs de l'Empire
 Plus grand que celui d'Alexandre dont je suis le défenseur
 
+                                                        akhenaton : 
+                                                        
+Mon sabre scintille, je médite accroupi sous les branches d'un saule
+Pleure, je défends l'honneur de mon école, fils
+Le troisième œil scrute le terrain, la tactique
+À pratiquer, pour balayer l'ennemi, statique
+Physiquement, les déplacements furtifs
+De l'essence de mon esprit élabore les bases de ma stratégie
+Donc je me dresse dans des cliquetis, bardé d'armes
+J'ai une armée entière sous le charmePrête à mourir, à lagloire de mon étendard
+J'ai rassemblé la clique des valeureux guerriers barbares
+Dare-dare j'ai envoyé paître les lettres
+Pour chassé les traîtres, selon l'enseignement de mes maîtres
+Sans relâche, je crache des cendres
+Et poursuivrai les massacres jusqu'à ce que le nom d'AKH soit légende
+Car le soldat, guerrier alpha est adroit
+Et lance l'assaut là, sur l'école du micro en bois
+La bataille a débuté, tiens
+Ce coup vient d'un expert à la guerre
+Vaillant praticien des arts martiens
+Délégué pour mettre un terme à ces horreurs
+Tel est mon labeur, tu sais de qui je défends l'honneur
+
+
 
 L'École du micro d'argent
 L'École du micro d'argent
@@ -46,5 +67,10 @@ L'École du micro d'argent
 Je représente
 L'École du micro d'argent
 L'École du micro d'argent
-#insert refrein
-                                                        akhenaton : 
+
+Source:Musixmatch
+Paroliers: Ron Smith / Geoffroy Mussard / Eric Mazel /Pascal Jean Perez / Philippe Tristan Fragione / William GreeneParoles de L’École du micro d’argent © Cote Obscur
+L’École du micro d’argent
+IAM
+
+
