@@ -1,8 +1,15 @@
 L’École du micro d’argent
 IAM
 
-choeur (moi):
+                                                        choeur (moi):
+L'École du micro d'argent
+L'École du micro d'argent
+L'Écoledu micro d'argent
+L'École du micro d'argent
+L'École du micro d'argent
+L'École du micro d'argent
+L'École du micro d'argent
 
-shurik'n (moi) :
+                                                        shurik'n (moi) :
 
-akhenaton : 
+                                                        akhenaton : 
