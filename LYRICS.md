@@ -1,3 +1,4 @@
+<<<<<<< HEAD
 Mon sabre scintille, je médite accroupi sous les branches d'un saule
 Pleure, je défends l'honneur de mon école, fils
 Le troisième œil scrute le terrain, la tactique
@@ -37,3 +38,20 @@ L'École du micro d'argent
 
 Source:Musixmatch
 Paroliers: Ron Smith / Geoffroy Mussard / Eric Mazel /Pascal Jean Perez / Philippe Tristan Fragione / William GreeneParoles de L’École du micro d’argent © Cote Obscur
+=======
+L’École du micro d’argent
+IAM
+
+                                                        choeur (moi):
+L'École du micro d'argent
+L'École du micro d'argent
+L'Écoledu micro d'argent
+L'École du micro d'argent
+L'École du micro d'argent
+L'École du micro d'argent
+L'École du micro d'argent
+
+                                                        shurik'n (moi) :
+
+                                                        akhenaton : 
+>>>>>>> 87a027e9f1d936ad15a5381ef3bfaacd2d1f2fad
